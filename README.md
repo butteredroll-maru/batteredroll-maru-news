@@ -1,1 +1,1 @@
-# batteredroll-maru-news
+# batteredroll-maru-news.github.io
